@@ -1,2 +1,2 @@
 # 2020CAD
-for design
+Snapshot of pre-season design work
